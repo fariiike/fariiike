@@ -42,7 +42,7 @@
 ---
 
 ## 📫 Contact
-- 📧 Email: **fariiikcontact@gmail.com**
+- 📧 Email: **contact@fariiik.store**
 - 💼 LinkedIn: **https://www.linkedin.com/in/fariiike**
 
 ---
